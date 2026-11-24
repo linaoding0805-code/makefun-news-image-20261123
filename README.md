@@ -13,7 +13,7 @@ that flattened a five-storey apartment block in Dymer, north of Kyiv — the
 toll rose to 11 on Monday as the search ended, with a boy of seven and a woman
 of 79 pulled alive from the rubble. It also carries Ukraine's claim that seven
 sea drones sank the Russian corvette Merkury at Benghazi, Libya, with
-satellite images showing the hull capsized at the pier; Indonesia's
+satellite images showing the hull smoldering and partly submerged at the pier; Indonesia's
 confirmation of 24 dead and about 30 missing after a blaze tore through a
 confectionery factory in Cikande, Banten; and Wall Street's sharp rebound, led
 by Nvidia's surge on Jensen Huang's return as chief executive, with the day's
